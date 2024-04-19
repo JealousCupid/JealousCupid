@@ -1,5 +1,5 @@
 <html> 
 
-  <img src="manto/Pictures/Roblox/newjeans.webp"/>
+  <img src="Pictures/newjeans.webp"/>
 
 </html>
