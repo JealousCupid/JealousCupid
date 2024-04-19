@@ -1,2 +1,2 @@
-<img src="Roblox/newjeans.webp"/>
+<img src="manto/Pictures/Roblox/newjeans.webp"/>
 
