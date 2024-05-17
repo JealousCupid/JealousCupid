@@ -1,4 +1,4 @@
-<p> im bored so here have weird sayings (mostly by my friends). Some were in party chat lol </p>
+<b><p> im bored so here have weird sayings (mostly by my friends). Some were in party chat lol </p></b>
 
 
 12:29 AM[;; SolarBalls | Venus] [NEPTUNE|Poseidon|I Stalk Venus #2] I don't like Venus I just stalk him because Uranus stalks earth
