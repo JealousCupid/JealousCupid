@@ -5,6 +5,7 @@
 >- You can call me Fanta for short
 >- NO ITS NOT THE FANTA DRINK 😭 
 >- I like space, If i havent made that obvious already
+>- Earth, Triton, Pest (fictkins)
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)                  
 
@@ -30,5 +31,23 @@ some honorable mentions ✧˖*°࿐ ☄️ 🪐
 
 makes out with all of you platonically/silly
 
+![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)  
+
+
+✦ : Interests/Fandoms ✧˖*°࿐ ☄️ 🪐
+
+>- Series/shows:                                         
+>Solarballs, Solarspheres, Spaceballs ect.                      
+>Steven Universe, TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education)
+>- Games:                   
+>Fnaf, Cookie Run Kingdom, D.A (Dragon adventures), COS (Creatures of Sonaria), EVADE, Regretevator
+>- On queue/havent watched/played YET:                
+PHIGHTING!(Roblox game), Helluva Boss, Hazbin Hotel
+>- I 100% forgot something so please check my patreon because it has it more clearly. I'm putting some information in Github too just in case someone is unable to open patreon ^^
+
+![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)  
+
+Thank you for staying 'till the end! Here have some food ^^                                                                           
+![](https://qph.cf2.quoracdn.net/main-qimg-d40a56300678ff1b731eda2693f63c0b)
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-a02e082d466824103e9a2d41919896e2)
