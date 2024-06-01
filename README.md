@@ -1,7 +1,7 @@
 # Ih guys wleocme abck ro me proflie :3                            
 ![](https://qph.cf2.quoracdn.net/main-qimg-a02e082d466824103e9a2d41919896e2) 
 
-✦ : Basic info 
+✦ : Basic info ✧˖*°࿐ ☄️ 🪐 
 >- You can call me Fanta for short
 >- NO ITS NOT THE FANTA DRINK 😭 
 >- I like space, If i havent made that obvious already
