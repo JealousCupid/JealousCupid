@@ -14,9 +14,10 @@
 (they are not that serious, i dont bite) ✧˖*°࿐ ☄️ 🪐                      
 
 >- Just so you know, If we havent shared at least a few words, I am not friending you. I dont friend random people and even if I do, I will probably remove you after a while.         
->- Please dont come up to me roleplaying, you WILL be ignored or i'll run away (I have no idea what to do or say and im awkward)          
+>- I don't roleplay so please dont come up to me roleplaying, you WILL be ignored or i'll run away (I have no idea what to do or say and im awkward)          
 >- I have trouble socializing so dont expect me to come up to you and start a convo even if i find you cool (I'll get scared af) 
->- I may make typos because i type too fast and i may be unbothered to correct them so bear with me   
+>- I may make typos because i type too fast and i may be unbothered to correct them so bear with me
+>- DNC skins. Dont take inspo without permission (its more likely i'll say no)
 >- otherwise, feel free to int and check my patreon!
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)                                       
