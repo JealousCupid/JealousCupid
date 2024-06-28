@@ -6,7 +6,7 @@
 >- NO ITS NOT THE FANTA DRINK 😭 
 >- I like space, If i havent made that obvious already
 >- I'm Greek and no i dont remember every single detail about greek mythology. Sorry to disappoint i aint zeus himself
->- Earth, Triton, Pest (fictkins)
+>- Fictkins : Earth, Triton (solarballs), Pest (regretevator)
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)                  
 
