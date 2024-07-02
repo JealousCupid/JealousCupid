@@ -18,7 +18,7 @@
 >- I have trouble socializing so dont expect me to come up to you and start a convo even if i find you cool (I'll get scared af) 
 >- I may make typos because i type too fast and i may be unbothered to correct them so bear with me
 >- DNC skins. Dont take inspo without permission (its more likely i'll say no)
->- otherwise, feel free to int and check my patreon!
+>- otherwise, feel free to int and check my [patreon](https://www.patreon.com/user/about?u=112114861)!
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)                                       
 
@@ -48,6 +48,7 @@ PHIGHTING!(Roblox game), Helluva Boss, Hazbin Hotel
 >- I 100% forgot something so please check my patreon because it has it more clearly. I'm putting some information in Github too just in case someone is unable to open patreon ^^
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)  
+[DNI this person](https://rentry.co/dniandleave)
 
 Thank you for staying 'till the end! Here have some food ^^                                                                           
 ![](https://qph.cf2.quoracdn.net/main-qimg-d40a56300678ff1b731eda2693f63c0b)
