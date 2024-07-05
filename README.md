@@ -30,6 +30,7 @@ some honorable mentions ✧˖*°࿐ ☄️ 🪐
 >Yes, you too Pip (i definitely did not call you pop) ily                                                                    
 >You... Koki... You havent been in game for 2 weeks. Ilysm but you dead as hell bro                                                                   
 >DESPAIUR ILYSM PIOKIE MWAH MWAH  
+>Miles, Star, Hailey, Vin, Unknown <3
 
 makes out with all of you platonically/silly
 
