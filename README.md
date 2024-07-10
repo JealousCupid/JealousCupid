@@ -49,9 +49,8 @@ PHIGHTING!(Roblox game), Helluva Boss, Hazbin Hotel (i dont think ill be watchin
 >- I 100% forgot something so please check my patreon because it has it more clearly. I'm putting some information in Github too just in case someone is unable to open patreon ^^
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)  
-[DNI this person](https://rentry.co/dniandleave)
-
-Also If you think that my ![friend's github](https://github.com/SaturnianStarr) looks similar to mine, thats because we are matching 👍 (he tried at least😭 It looks pretty stip it)
+[DNI this person](https://rentry.co/dniandleave)                                                                
+Also If you think that my [friend's github](https://github.com/SaturnianStarr) looks similar to mine, thats because we are matching 👍 (he tried at least😭 It looks pretty stip it)
 
 Thank you for staying 'till the end! Here have some food ^^                                                                           
 ![](https://qph.cf2.quoracdn.net/main-qimg-d40a56300678ff1b731eda2693f63c0b)
