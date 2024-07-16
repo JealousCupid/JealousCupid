@@ -22,21 +22,6 @@
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)                                       
 
-
-✦ : yay my friens !!! wow i have friends !!                        
-some honorable mentions ✧˖*°࿐ ☄️ 🪐
-
-><b>Simi, Roxy, Rai <33333</b>                                                    
->Yes, you too Pip (i definitely did not call you pop) ily                                                                    
->You... Koki... You havent been in game for 2 weeks. Ilysm but you dead as hell bro                                                                   
->DESPAIUR ILYSM PIOKIE MWAH MWAH  
->Miles, Star, Hailey, Vin, Unknown <3
-
-makes out with all of you platonically/silly
-
-![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)  
-
-
 ✦ : Interests/Fandoms ✧˖*°࿐ ☄️ 🪐
 
 >- Series/shows:                                         
