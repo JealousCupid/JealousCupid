@@ -26,7 +26,7 @@
 
 >- Series/shows:                                         
 >**Solarballs**, Solarspheres, Spaceballs ect.                      
->Steven Universe, TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education)
+>Steven Universe, TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education), Fairly Odd Parents (New wish + OG)
 >- Games:                   
 >Fnaf, **Cookie Run Kingdom**, **D.A (Dragon adventures)**, COS (Creatures of Sonaria), EVADE, **Regretevator**
 >- On queue/havent watched/played YET:                
