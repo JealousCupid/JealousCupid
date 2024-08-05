@@ -26,11 +26,11 @@
 
 >- Series/shows:                                         
 >**Solarballs**, Solarspheres, Spaceballs ect.                      
->Steven Universe, TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education), Fairly Odd Parents (New wish + OG)
+>Steven Universe, TADC, **Murder Drones**, Animatic Battle (Object show), FPE (Fundamental paper education), **Fairly Odd Parents** (New wish + OG)
 >- Games:                   
 >Fnaf, **Cookie Run Kingdom**, **D.A (Dragon adventures)**, COS (Creatures of Sonaria), EVADE, **Regretevator**
 >- On queue/havent watched/played YET:                
-PHIGHTING!(Roblox game), Helluva Boss, Hazbin Hotel (i dont think ill be watching these anytime soon, creator dni)
+PHIGHTING!, Pressure 
 >- I 100% forgot something so please check my patreon because it has it more clearly. I'm putting some information in Github too just in case someone is unable to open patreon ^^
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)  
