@@ -39,3 +39,5 @@ PHIGHTING!, Pressure
 Ilysm [@SaturnianStarlight](https://github.com/SaturnianStarlight)
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-a02e082d466824103e9a2d41919896e2)
+
+If you ever see my pony looking towards a certain way, its because i clicked somewhere randomly so the game doesnt kick me for staying afk for too long, I am not side eyeing anyone please
