@@ -28,11 +28,11 @@
 
 >- Series/shows:                                         
 >**Solarballs**, Solarspheres, Spaceballs ect.                      
->Steven Universe, TADC, **Murder Drones**, Animatic Battle (Object show), FPE (Fundamental paper education), **Fairly Odd Parents** (New wish + OG)
+>Steven Universe, TADC, **Murder Drones**, Animatic Battle (Object show), FPE (Fundamental paper education), **Fairly Odd Parents** (New wish + OG), Monkie Kid (still watching)
 >- Games:                   
 >Fnaf, **Cookie Run Kingdom**, **D.A (Dragon adventures)**, COS (Creatures of Sonaria), EVADE, **Regretevator**, **Pressure**
 >- On queue/havent watched/played YET:                
-PHIGHTING!, Pressure 
+PHIGHTING!, idk what else ples suggest
 >- I 100% forgot something so idk, ig you can ask me ^^
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)  
