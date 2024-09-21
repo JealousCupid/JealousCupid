@@ -16,8 +16,6 @@
 >- You can interact any time with me unless my name says otherwise ^^ If i dont respond right away, i'd do it later when i see it since im off tab a lot  
 >- I experiement with style and lighting a lot so if you see similarities with your skins that bother you, please tell me so i cant change them!! ^^ 
 >- DNC skins. Dont take inspo without permission. More likely to deny inspo if you are a stranger and accept it if you are a close friend
->- I have trouble socializing so dont expect me to come up to you and start a convo even if i find you cool (I'll get scared af) 
->- I may make typos because i type too fast and i may be unbothered to correct them so bear with me
 >- I don't roleplay and do only slight roleplays with close friends
 >- Im pookie 
 
