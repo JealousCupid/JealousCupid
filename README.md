@@ -37,7 +37,6 @@ PHIGHTING!, idk what else ples suggest
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)  
 
-Ilysm [@SaturnianStarlight](https://github.com/SaturnianStarlight)
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-a02e082d466824103e9a2d41919896e2)
 
