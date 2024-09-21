@@ -5,7 +5,6 @@
 >- You can call me Fanta for short
 >- NO ITS NOT THE FANTA DRINK :sob: 
 >- I like space
->- I'm Greek and no i dont remember every single detail about greek mythology. Sorry to disappoint i aint zeus himself
 >- Fictkins : Earth, Triton (solarballs), Pest (regretevator)
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)                  
