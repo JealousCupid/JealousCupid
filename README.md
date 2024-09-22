@@ -14,9 +14,10 @@
 
 >- If we havent shared at least a few words, I am not friending you. I dont friend random people and even if I do, I will probably remove you after a while.  
 >- You can interact any time with me unless my name says otherwise ^^ If i dont respond right away, i'd do it later when i see it since im off tab a lot  
->- I experiement with style and lighting a lot so if you see similarities with your skins that bother you, please tell me so i cant change them!! ^^ 
+>- I experiement with style and lighting a lot so if you see similarities with your skins that bother you, please tell me so i can change them!! ^^ 
 >- DNC skins. Dont take inspo without permission. More likely to deny inspo if you are a stranger and accept it if you are a close friend
 >- I don't roleplay and do only slight roleplays with close friends
+>- I MAKE A LOT OF SPELLING MISTAKES IM SOR
 >- Im pookie 
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)
