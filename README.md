@@ -6,6 +6,7 @@
 >- NO ITS NOT THE FANTA DRINK :sob: 
 >- I like space
 >- Fictkins : Earth, Triton (solarballs), Pest (regretevator)
+>- Please just leave me alone and let me move on.
 
 ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd) ![](https://qph.cf2.quoracdn.net/main-qimg-1a925f56658186962769a6ba404f0fcd)                  
 
