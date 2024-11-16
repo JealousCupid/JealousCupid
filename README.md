@@ -15,7 +15,7 @@ Pls do not take inspo w/o perm!!
      - I make accidental spelling mistakes                              
 
        
-![bluecoreaespablured](https://github.com/user-attachments/assets/18f40269-7b39-4a5d-8c2f-dd4079d9bd15)
+
 
 
 
