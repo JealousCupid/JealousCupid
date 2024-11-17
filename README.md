@@ -1,4 +1,4 @@
-# Welcome (back) to my profile!
+# Welcome (back) to my profile!             
 ![](https://64.media.tumblr.com/94852a45b54e520b1c98de784e8c67a0/f0c30f6d36e0d729-04/s2048x3072/17950a56dda86f9f79d70a6dd6314a5c63361012.pnj)
 ![](https://64.media.tumblr.com/297b6cc444ff424e3f093063058f68af/f0c30f6d36e0d729-9c/s2048x3072/cb15374e9f29e8b9893ecb4a73ab7096fab28940.pnj)
 ## ✦ㅤ:ㅤBasic Info ☄️
@@ -32,7 +32,7 @@
 ![](https://64.media.tumblr.com/e98445e7f76682e1c97b96b1d7db6a56/f0c30f6d36e0d729-c1/s2048x3072/1d92899d354a57fea45b2ef77a7c094a35b27ae5.pnj)
 ![](https://64.media.tumblr.com/0b6071ba16d4214d2036371dc3cf6d46/80d3b17eb29b47cc-cc/s100x200/d3d754234456349b2f592f2270e3c0b88ff96b48.pnj) ![](https://64.media.tumblr.com/6d58aaa0a837c013daa930f55709b3cd/80d3b17eb29b47cc-ff/s100x200/4a4f66d098529af40351f6f3df98dddc39adc332.pnj) ![](https://64.media.tumblr.com/fc554dda6b350fd1c6b0244f2139f497/80d3b17eb29b47cc-4f/s100x200/244460ac0551665d2e0963dc7358b329de157464.pnj) ![](https://64.media.tumblr.com/a96c87caaeaac559024a4cd077db4e7b/80d3b17eb29b47cc-d0/s100x200/44bc22a02f5585bdf3eed29057586f8639850b68.pnj) ![](https://64.media.tumblr.com/261526273b6893364ea871e0274f5121/80d3b17eb29b47cc-b1/s100x200/7fd74199448cb07395170adc67ec877054c6c716.pnj) 
                                
-making another readme atm, until then i have this ^^
-
+making another readme atm, until then i have this ^^                       
+ ![](https://komarev.com/ghpvc/?username=JealousCupid&style=for-the-badge&label=POOKIES&abbreviated=true)
 
 
