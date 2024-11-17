@@ -11,7 +11,7 @@
 
 ![](https://64.media.tumblr.com/cba75ad1e23fd2245fca0955af430bb1/f0c30f6d36e0d729-d9/s2048x3072/17a17ae98b915adaf3b842fb0ac4ca76c7c057de.pnj)
 
-## ✦ㅤ:ㅤInterests ☄️
+## ✦ㅤ:ㅤInterests 🥂✨
 > ### Series/shows:             
 > Solarballs, Solarspheres, Spaceballs ect.                                           
 > Steven Universe, TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education), Fairly Odd Parents (New wish + OG), Monkie Kid (still watching)
