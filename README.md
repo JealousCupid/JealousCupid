@@ -13,10 +13,10 @@
 
 ## ✦ㅤ:ㅤInterests 🥂✨
 > ### Series/shows:             
-> Solarballs, Solarspheres, Spaceballs ect.                                           
-> Steven Universe, TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education), Fairly Odd Parents (New wish + OG), Monkie Kid (still watching)
+> Solarballs, Solarspheres, Spaceballs ect.                                            
+> Steven Universe, TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education), Fairly Odd Parents (New wish + OG), Monkie Kid, MHA
 > ### Games:
-> Fnaf, Cookie Run Kingdom, Afk Arena, MLBB, D.A (Dragon adventures), COS (Creatures of Sonaria), EVADE, Regretevator, Pressure and probably many other roblox games mainly
+> Fnaf, Cookie Run Kingdom, Afk Arena, MLBB, Sprunki, D.A (Dragon adventures), COS (Creatures of Sonaria), EVADE, Regretevator, Pressure, Dandy's world and probably many other roblox games mainly
 > ### On queue/havent watched/played YET:
 > Im currently open to suggestions but i may not have time because of school!!                      
 > I 100% forgot something so idk, ig you can ask me ^^              
