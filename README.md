@@ -6,7 +6,7 @@
 > I use all pronouns with a preference to they/them                     
 > Fictkins : Earth, Triton (solarballs), Pest (regretevator)           
 > Artist + space enthusiast       
-> 6teen          
+> 7teen          
 > ☀️🔱🏛🧿🌊🧜🏻‍♀️🇬🇷
 
 ![](https://64.media.tumblr.com/cba75ad1e23fd2245fca0955af430bb1/f0c30f6d36e0d729-d9/s2048x3072/17a17ae98b915adaf3b842fb0ac4ca76c7c057de.pnj)
@@ -14,10 +14,12 @@
 ## ✦ㅤ:ㅤInterests 🥂✨
 > ### Series/shows:             
 > Solarballs, Solarspheres, Spaceballs ect.                                            
-> Steven Universe, TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education), Fairly Odd Parents (New wish + OG), Monkie Kid, MHA
+> Steven Universe(OG + Future), TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education), Fairly Odd Parents(New wish + OG), Monkie Kid, MHA, Southpark
 > ### Games:
 > Fnaf, Cookie Run Kingdom, Afk Arena, MLBB, Sprunki, D.A (Dragon adventures), COS (Creatures of Sonaria), EVADE, Regretevator, Pressure, Dandy's world and probably many other roblox games mainly
-> ### On queue/havent watched/played YET:
+> ### Other:                 
+> SCP Foundation, Local 58, Gemini Home Etertainment                                       
+> ### On queue/havent watched/played YET:                       
 > Im currently open to suggestions but i may not have time because of school!!                      
 > I 100% forgot something so idk, ig you can ask me ^^              
                     
