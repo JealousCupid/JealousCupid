@@ -1,16 +1,16 @@
 
 ![](https://64.media.tumblr.com/29d927bf431badc3aa1fe437c3bc0727/db26be39848f24fa-87/s2048x3072/06df3231877a2e9b2a7db7636840645724ee559d.pnj)
-## ✦ㅤ:ㅤBasic Info ☄️
+## ✦ㅤ:ㅤ╰ ❝ [Basic Info] ☄️꒱
 > Call me Fanta for short or Ghost!              
 > I use all pronouns with a preference to they/them                     
 > Fictkins : Earth, Triton (solarballs), Pest (regretevator)           
 > Artist + space enthusiast       
 > 7teen          
-> ☀️🔱🏛🧿🌊🧜🏻‍♀️🇬🇷
+> gr
 
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
 
-## ✦ㅤ:ㅤInterests 🥂✨
+## ✦ㅤ:ㅤ╰ ❝ [Interests] ☄️꒱
 > ### Series/shows:             
 > Solarballs, Solarspheres, Spaceballs ect.                                            
 > Steven Universe(OG + Future), TADC, Murder Drones, Animatic Battle (Object show), FPE (Fundamental paper education), Fairly Odd Parents(New wish + OG), Monkie Kid, MHA, Southpark
@@ -24,7 +24,7 @@
                     
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)            
 
-## ✦ㅤ:ㅤDNI ☄️ 🚀
+## ✦ㅤ:ㅤ╰ ❝ [DNI] ☄️꒱
 [Basic DNI criteria](https://basic-dni.crd.co/)                         
  - ex-friends                              
    - disrespecting boundaries  
