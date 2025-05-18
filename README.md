@@ -31,7 +31,7 @@
 
 ![](https://64.media.tumblr.com/29d927bf431badc3aa1fe437c3bc0727/db26be39848f24fa-87/s2048x3072/06df3231877a2e9b2a7db7636840645724ee559d.pnj)
 ![](https://64.media.tumblr.com/fdf432d212276c520b2f30c6bbcd105d/6d657ac106c6061d-00/s1280x1920/c23a18207139294ae95167a5982fe48a62531e47.gifv)
-> banner creds: pink-sugar , sisterlucifergraphics both on tubmlr!!!
+> 🌎 ;; . . . banner creds: pink-sugar , sisterlucifergraphics both on tumblr!!!
                    
  ![](https://komarev.com/ghpvc/?username=JealousCupid&style=for-the-badge&label=POOKIES&abbreviated=true)
 
