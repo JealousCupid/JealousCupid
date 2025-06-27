@@ -26,3 +26,6 @@ This README is still a wip!!
 
 
 ![](https://64.media.tumblr.com/ba8e24dfefa6bd46cc9476fd3598619e/93ce3cb722e5249f-8d/s1280x1920/131535b3c87db1f3ce64e3cbdcf2ba6ab248f265.pnj)
+
+🌎 ;; . . . banner creds: astrivion , dollywons both on tumblr!!!
+
