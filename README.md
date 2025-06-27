@@ -1,3 +1,4 @@
+banner creds: astrivion , dollywons both on tumblr!!!
 ![](https://64.media.tumblr.com/33934a5225ec829dda86a99ce5f9ce5b/93ce3cb722e5249f-a4/s1280x1920/9a0582a6c610922f50f2e31de2a2fd946a10af46.pnj)
 <p align="center">
 Fantasma.  /  Ghost.  /  Cupid.  +  many more names     
@@ -27,5 +28,7 @@ This README is still a wip!!
 
 ![](https://64.media.tumblr.com/ba8e24dfefa6bd46cc9476fd3598619e/93ce3cb722e5249f-8d/s1280x1920/131535b3c87db1f3ce64e3cbdcf2ba6ab248f265.pnj)
 
-🌎 ;; . . . banner creds: astrivion , dollywons both on tumblr!!!
+
+ ![](https://komarev.com/ghpvc/?username=JealousCupid&style=for-the-badge&label=POOKIES&abbreviated=true)
+
 
