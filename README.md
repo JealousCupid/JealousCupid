@@ -19,7 +19,7 @@ I mostly sit alone and make skins. Please tell me if my pony is similar to yours
 W2I!! I might not see your messages because im afk a lot
 </p>
 <p align="center">
-I like blasting music in my ears at 100% volume
+I dont roleplay so please be aware of that
 </p>
 <p align="center">
 Im very busy with life so you most likely wont see be around a lot
