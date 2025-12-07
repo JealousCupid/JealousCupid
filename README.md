@@ -4,7 +4,7 @@
 Fantasma.  /  Ghost.  /  Cupid.  +  many more names     
 </p> 
 <p align="center">                            
-They.  ﾉ  He.  ﾉ  Her.
+𓆩ㅤThey.  ﾉ  He.  ﾉ  Her.ㅤ𓆪
 </p>
 <p align="center">               
 I'm 17 and studying Graphic design and working on customer service                      
