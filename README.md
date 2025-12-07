@@ -7,13 +7,13 @@ Fantasma.  /  Ghost.  /  Cupid.  +  many more names
 They.  ﾉ  He.  ﾉ  Her.
 </p>
 <p align="center">               
-I'm 17 and studying Graphic design                      
+I'm 17 and studying Graphic design and working on customer service                      
 </p>
 
 ![](https://64.media.tumblr.com/a9023d766cff39ae90649ae3b3ea3f85/11ccc40b46fe2198-0e/s2048x3072/01905ca88293eef866e0d33f2e4e1e5d6a21ac44.pnj)
 
 <p align="center">
-I mostly sit alone and make skins. Please tell me if my pony is similar to yours
+I mostly sit alone and make skins. Please tell me if my pony is similar to yours, its completely unintentional if it is
 </p>
 <p align="center">
 W2I!! I might not see your messages because im afk a lot
@@ -22,7 +22,7 @@ W2I!! I might not see your messages because im afk a lot
 I like blasting music in my ears at 100% volume
 </p>
 <p align="center">
-This README is still a wip!!
+Im very busy with life so you most likely wont see be around a lot
 </p>
 
 
