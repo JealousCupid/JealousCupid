@@ -7,7 +7,7 @@ Fantasma.  /  Ghost.  /  Cupid.  +  many more names
 𓆩ㅤThey.  ﾉ  He.  ﾉ  Her.ㅤ𓆪
 </p>
 <p align="center">               
-I'm 17 and studying Graphic design and working on customer service                      
+I'm 17 and studying Graphic design and working in customer service                      
 </p>
 
 ![](https://64.media.tumblr.com/a9023d766cff39ae90649ae3b3ea3f85/11ccc40b46fe2198-0e/s2048x3072/01905ca88293eef866e0d33f2e4e1e5d6a21ac44.pnj)
