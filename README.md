@@ -33,4 +33,6 @@ Im very busy with life so you most likely wont see be around a lot
  im not gonna call you guys stalkers lol                             
  never start assuming or ming is gonna be mad
 
+![](https://komarev.com/ghpvc/?username=JealousCupid)
+
 
