@@ -25,7 +25,7 @@ I dont roleplay so please be aware of that
 Im very busy with life so you most likely wont see me around a lot
 </p> 
 <p align="center">
-I laos cannt spell to saev my lfie so dont miend my spe.ling...
+I also cannot spell to save my life so dont mind my spelling...
 </p>             
                  
 
