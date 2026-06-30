@@ -22,10 +22,11 @@ W2I!! I might not see your messages because im afk a lot
 I dont roleplay so please be aware of that
 </p>
 <p align="center">
-Im very busy with life so you most likely wont see be around a lot
+Im very busy with life so you most likely wont see me around a lot
 </p>
-
-
+<p align="center">
+I laos cannt spell to saev my lfie so dont miend my spe.ling...
+</p>
 ![](https://64.media.tumblr.com/ba8e24dfefa6bd46cc9476fd3598619e/93ce3cb722e5249f-8d/s1280x1920/131535b3c87db1f3ce64e3cbdcf2ba6ab248f265.pnj)
 
 
